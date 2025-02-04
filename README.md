@@ -1,3 +1,4 @@
 - 👋 Hi, I’m @fattyWAP
 - 📫 Contact me at sellscapri@gmail.com
 - 🌟 Give me Feedback on my games: https://docs.google.com/forms/d/e/1FAIpQLSeDh1-lACXAxBkpKdJTDwmPrTvFnHbL-kkwDgo5DsolLJOdGw/viewform?usp=dialog
+- 💵 Cashapp me: $BerryChopper
